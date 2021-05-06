@@ -1,0 +1,2 @@
+# postgraduate-D23
+Recently, there has been a lot of pressure. I have decided to take the postgraduate entrance examination, but I don't have a big grasp. The target university is only a medium-sized 211. Moreover, there is only one target university and one target specialty in China. I can't compete with others in mathematics. So I'm thinking about studying in the UK recently. But I don't know how highly the UK master's degree of recognition is. I really want to go to the big factory    报错 笔记
